@@ -1,1 +1,0 @@
-# ograndlucius.github.io
